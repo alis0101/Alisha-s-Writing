@@ -1,6 +1,6 @@
-## Welcome to GitHub Pages
+## Alisha Gupta
 
-You can use the [editor on GitHub](https://github.com/alis0101/alishag.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+I am a junior at the Academy for Mathematics, Science, and Engineering. I am interested in both quantum electromagentism and the uses of topology in condensend matter research. I also enjoy studying pure mathematics, at the moment I am interested in researching the volume conjecture (an open problem in knot theory). More of my previous mathematical and physics endeavours can be found below. 
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
