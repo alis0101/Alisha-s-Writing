@@ -1,5 +1,5 @@
 ## Alisha Gupta
-![Image1](https://user-images.githubusercontent.com/108892946/177854295-8978a8ab-62e3-41a6-95be-85fa5c5639d0.jpg)
+
 I am a junior at the Academy for Mathematics, Science, and Engineering. I am interested in both quantum electromagentism and the uses of topology in condensend matter research. I also enjoy studying pure mathematics, at the moment I am interested in researching the volume conjecture (an open problem in knot theory). 
 ### Contact/CV
 #### Email: alishag0101@gmail.com
