@@ -1,19 +1,21 @@
 ## Alisha Gupta
 
-I am a junior at the Academy for Mathematics, Science, and Engineering. I am interested in both quantum electromagentism and the uses of topology in condensend matter research. I also enjoy studying pure mathematics, at the moment I am interested in researching the volume conjecture (an open problem in knot theory). More of my previous mathematical and physics endeavours can be found below. 
+I am a junior at the Academy for Mathematics, Science, and Engineering. I am interested in both quantum electromagentism and the uses of topology in condensend matter research. I also enjoy studying pure mathematics, at the moment I am interested in researching the volume conjecture (an open problem in knot theory). 
 
 ### Contact
 ### Physics Things
-At the moment I am focused on learning quantum mechanics reigourusly and I plan on getting to a point where I can research further condensed matter speicfically 
-### Maths Things
+#### What I am Doing:
+At the moment I am focused on learning quantum mechanics reigourusly and I plan on getting to a point where I can research further condensed matter specifically how topological invariants play a major role in studying the symmetries of many quantumn systems. In the past I have spent my time learning electrodynamics (Griffiths) and have exposure with classical mechanics (Taylor). More of my previous physics endeavours on my CV found below! 
+#### What I am Reading:
+### Math Things
+#### What I am Doig:
+Right now I am focused on solidfying my knowledge of knot theory and make the break into more advanced knot theory. I am readily trying to research the volume conjecture and other fascinating subsets of knot theory such as hyperbolic knot theory. Other than that, recently I have also been fascinated by representation theory and have started to learn some of it. 
+#### What I am Reading:
+### Other Interests
 
-### Any Other Interests
+#### Friends/Places (not updated freqeuntly) 
 
-### Friends/Places (not updated freqeuntly) 
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
-```markdown
-Syntax highlighted code block
 
 # Header 1
 ## Header 2
