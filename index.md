@@ -26,21 +26,14 @@ https://arxiv.org/pdf/2206.07829.pdf
 ### Other Interests
 When I am not engaged in maths and physics, I am often speaking to people about philosphy, history, social sciences, and/or going to various locations in and outside of New Jersey (Morris County!!!!). Recently, I have started to go to New York City quite often with my friends some such activities captured below. Other than that I also thourughly enjoy jazz music and actually would reccomend going to the Village Vanguard (jazz club) in the city if given a chance. 
 #### Friends/Places (not updated freqeuntly) 
+![Image1](https://user-images.githubusercontent.com/108892946/177854295-8978a8ab-62e3-41a6-95be-85fa5c5639d0.jpg)
+![Image2](https://user-images.githubusercontent.com/108892946/177854307-81c8c16e-5793-410c-8ef0-c706332a53f7.jpg)
+![Image3](https://user-images.githubusercontent.com/108892946/177854317-d863060f-46f2-428a-af66-a65728640fde.jpg)
+![IMG-9163](https://user-images.githubusercontent.com/108892946/177854340-dff39607-6692-4198-98f3-a03e03c5e977.jpg)
+![IMG-9162](https://user-images.githubusercontent.com/108892946/177854372-0b1e2f19-4e8e-4e4d-a04c-d89ecf01447c.jpg)
 
 ### Jazz/Music
-
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
+https://open.spotify.com/album/5SNc8uwbqPHFxpdOsV808z
+https://open.spotify.com/album/03zH4bkGb2jSZAQIVW2px1
+https://open.spotify.com/album/5QQFMFtFNHuBtBTNBERWik
+https://open.spotify.com/album/47tKcVja6zGErYiYRoAoTk?highlight=spotify:track:2VachsOXvUkifrCwg5ANyn
