@@ -24,8 +24,9 @@ https://arxiv.org/pdf/2206.11067.pdf,
 https://arxiv.org/pdf/2206.10651.pdf,
 https://arxiv.org/pdf/2206.07829.pdf
 ### Other Interests
-When I am not engaged in maths and physics, I am often speaking to people about philosphy, history, social sciences, and/or going to various locations in and outside of New Jersey (Morris County!!!!). Recently, I have started to go to New York City quite often with my friends some such activities captured below. Other than that I also thourughly enjoy jazz music and actually would reccomend going to the Village Vanguard (jazz club) in the city if given a chance. 
-#### Friends/Places (not updated freqeuntly) 
+When I am not engaged in maths and physics, I am often speaking to people about philosphy, history, social sciences, and/or going to various locations in and outside of New Jersey (Morris County!!!!). Recently, I have started to go to New York City quite often with my friends some such activities captured below. Other than that I also thourughly enjoy jazz music.
+#### Friends/Places 
+![IMG-9161](https://user-images.githubusercontent.com/108892946/178020035-b159e58f-c064-49be-b653-a35db29c2296.jpg)
 ![Image2](https://user-images.githubusercontent.com/108892946/177854307-81c8c16e-5793-410c-8ef0-c706332a53f7.jpg)
 ![Image3](https://user-images.githubusercontent.com/108892946/177854317-d863060f-46f2-428a-af66-a65728640fde.jpg)
 ![IMG-9163](https://user-images.githubusercontent.com/108892946/177854340-dff39607-6692-4198-98f3-a03e03c5e977.jpg)
