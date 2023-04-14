@@ -1,6 +1,9 @@
 ## Writing 
-
-### A Collection of Writings :)
+### Links
+[Creative Works](#a-collection-of-writings) <br/><br/>
+[Critiques and Opinions](#critiques-and-opinions) <br/> <br/>
+[Jazz/Music Recs](#jazz-music)
+### A Collection of Writings 
 #### A Sermon:
 My podium is tall, brown, and carries within it a sense of venerability that only the most deceitful can dream of. My imp like legs find it difficult to balance on the stilts they stand on, yet with my limp I arrive squarely at my destination—the head of the assembly. I draw a piece of paper folded crisply in half from my coat pocket. The bodies of the assembly were paused, but I felt their souls dancing across the room in anticipation of my groundbreaking words. I start with a wisecrack about Jesus or something and glance at the clock, my brain hears the ticks which my ears cannot. My heart pants as if it has just run a marathon and a tsunami hits my forehead. My legs push off my tall stilts and my hands thrust the black suit glued to my body into the assembly. I am bare in front of my onlookers. I am bare and I am not proud. A woman in the crowd suddenly resumes her movement. She gazes up, the full sight of her pretty curls obstructed by the straw sun hat she chose to adorn her head with. Her straw hat that so evidently was out of place for her gloved hands sat neatly one atop the other, her thin legs crossed each other creating the perfect “X.” Her feet were outfitted with heels bedazzled with pearls. Her hot pink dress fiercely grasped her tiny waist and thick curves. Her nose was tiny. Her nose was tiny. But her straw hat looked as if it had been plucked off the top of a homeless person’s head. It seemed like an illusion, waiting to dissipate into space. Questions. Questions fluttered through my mind like butterflies who had found an open field. Questions like who was this straw hatted woman and why did she gaze up? Questions like who on earth would wear such a vile straw hat? My patience was wearing thin. Thinner yet. My eyes shut and then my eyelids slowly elevate. I see the woman’s eyes now. Black. Questions like. Questions like how long could I contain myself before I lunged? Questions like how long would it take for me to carve this woman’s face into a trophy? Questions how they swarm. Questions like. Questions like. Questions like. Questions like. 
 #### The Lady:
@@ -66,7 +69,7 @@ Now, this is not a death proclamation; robots are not going to eat us yet (altho
 
 
 
-### Jazz/Music
+### Jazz Music
 https://open.spotify.com/album/5SNc8uwbqPHFxpdOsV808z
 https://open.spotify.com/album/03zH4bkGb2jSZAQIVW2px1
 https://open.spotify.com/album/5QQFMFtFNHuBtBTNBERWik
