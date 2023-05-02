@@ -3,7 +3,8 @@
 ### Links
 [Creative Works](#a-collection-of-writings) <br/><br/>
 [Critiques and Opinions](#critiques-and-opinions) <br/> <br/>
-[Jazz/Music Recs](#jazz-music)
+[Jazz/Music Recs](#jazz-music) <br/> <br/>
+
 ### A Collection of Writings 
 #### A Sermon:
 My podium is tall, brown, and carries within it a sense of venerability that only the most deceitful can dream of. My imp like legs find it difficult to balance on the stilts they stand on, yet with my limp I arrive squarely at my destination—the head of the assembly. I draw a piece of paper folded crisply in half from my coat pocket. The bodies of the assembly were paused, but I felt their souls dancing across the room in anticipation of my groundbreaking words. I start with a wisecrack about Jesus or something and glance at the clock, my brain hears the ticks which my ears cannot. My heart pants as if it has just run a marathon and a tsunami hits my forehead. My legs push off my tall stilts and my hands thrust the black suit glued to my body into the assembly. I am bare in front of my onlookers. I am bare and I am not proud. A woman in the crowd suddenly resumes her movement. She gazes up, the full sight of her pretty curls obstructed by the straw sun hat she chose to adorn her head with. Her straw hat that so evidently was out of place for her gloved hands sat neatly one atop the other, her thin legs crossed each other creating the perfect “X.” Her feet were outfitted with heels bedazzled with pearls. Her hot pink dress fiercely grasped her tiny waist and thick curves. Her nose was tiny. Her nose was tiny. But her straw hat looked as if it had been plucked off the top of a homeless person’s head. It seemed like an illusion, waiting to dissipate into space. Questions. Questions fluttered through my mind like butterflies who had found an open field. Questions like who was this straw hatted woman and why did she gaze up? Questions like who on earth would wear such a vile straw hat? My patience was wearing thin. Thinner yet. My eyes shut and then my eyelids slowly elevate. I see the woman’s eyes now. Black. Questions like. Questions like how long could I contain myself before I lunged? Questions like how long would it take for me to carve this woman’s face into a trophy? Questions how they swarm. Questions like. Questions like. Questions like. Questions like. 
@@ -84,3 +85,24 @@ https://open.spotify.com/album/5SNc8uwbqPHFxpdOsV808z
 https://open.spotify.com/album/03zH4bkGb2jSZAQIVW2px1
 https://open.spotify.com/album/5QQFMFtFNHuBtBTNBERWik
 https://open.spotify.com/album/47tKcVja6zGErYiYRoAoTk?highlight=spotify:track:2VachsOXvUkifrCwg5ANyn
+
+### A Disarray of Play Scenes
+
+#### Kia
+A cubic prison is set up with one apparent door and two hidden doors. It is open to the audience. On the left and right of the square there is a car. Above the cubic prison there is a platform on which redacted and extra redacted eat food and talk. 
+Kia is hauled in like cargo by two officers dressed in blinding white and bloody red. She is gripped fiercely by the arms, one of an officer draped underneath hers. Kia is terrifyingly submissive, her eyes look devoid of hope, almost as if she had paid the officers to do what they would do next. She is thrown aggressively against the concrete floor, but stays splayed in precisely the position she hit the floor in. The officers glance at Kia for a moment, a sparkle of pity and a gleam of embarrassment for her in their eyes. Almost as if they’re laughing underneath their mask, they exit using the door behind them. They move in opposite directions and enter their respective cars. 
+
+More notes: she should have the option to escape, but choose to lay down and die by the motion of the car.
+
+#### Cafe Scene
+Nate: “How was the audition?” <br/> <br/> 
+Nora: “Bullshit, but that’s Hollywood right? Can’t be helped in the city of angels and broken dreams” <br/><br/> 
+Nate: “You’re really one for spunky bullshit like that eh?” <br/><br/> 
+Nora: “Oh you haven’t seen the half it Mr. Redacted, I can sing poetry for you at the drop of a hat. Make you swoon at my feet just like that.” <br/><br/> 
+Nate: “Ah! I’ve found Syvia Plath reincarnate it seems. What other talents are you hiding up those sleeves of yours?” <br/><br/> 
+Nora: “Do you sing Mr. Redacted?” <br/><br/> 
+Nate: “Everyone sings Nora, the better question is where do I sing” <br/><br/> 
+Nora: “What a revelation, must I now bow down to your superior question posing abilities? Fine, Redacted where do you sing?” <br/><br/> 
+Nate: “Well I sing in the shower. I sing in the streets. I sing in my dreams. I sing in the kitchen. I sing at work. I sing at coffee shops. And I sing with you Nora. I sing with you. Take me hand now and let’s fly.” <br/> <br/> 
+Nora: “Enough! You’re really the one for spunky bullshit” <br/><br/> 
+Nate: “Nora + Nate let’s plaster it on a sign and get wed” <br/><br/> 
