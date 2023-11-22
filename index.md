@@ -1,10 +1,30 @@
 
 ## Alisha's Works
 ### Links
+[Novel Update](#novel) <br/><br/>
 [Creative Works](#a-collection-of-writings) <br/><br/>
 [Critiques and Opinions](#critiques-and-opinions) <br/> <br/>
 [Jazz/Music Recs](#jazz-music) <br/> <br/>
+### Novel 
+My father died in the mid-bloom of August—dominated neither by the summer calm nor the autumn gloom. In the most clichest of manners, he was found—one of two beasts underneath an oblivious city bridge. No story worth telling died with him that night. He wasn’t a man who warranted a story. Expectedly then, this story is not about him. It’s not about his plummets or his rescues. It’s not about me or the aftermath. 
+It’s not about anybody, anywhere, at any time - anybody at all except her. 
+Nobody except her. 
 
+<Page Break>
+
+	Nagano, Japan; 2000. 
+
+Her midnight eyes gifted a sultry gaze to the local teddy-bear bartender–they twinkled with a wink of “make it strong and you might get lucky.” Now, completely sitting atop the sleek black marble slab as if it were a dirty bathroom sink, she arched backwards and locked eyes with an upside-down bottle of Haku. Her first sincere smile slowly stretched out her sad face. She snaked her sparkly scanties into the bar seat, ample chest pressed without a flinch into the cold, glittery slab. Her arms hold her nocent eyes up as they, finally, squarely see the pristine bottle of Haku.
+She giggles. She sees herself in the Haku. She giggles. 
+She once again places her scantily clad bosom on the shiny slab surface and twists her legs over to the other side of the bar slab. Her calloused, yet sparkly white, fingers gently press the glass of the noir Haku bottle. 
+She giggles. She sees her pretty eyes in the Haku.
+Her sweaty elbows grace the slab as she looks onto the Haku. So entrancing was her enchantment that she didn’t notice a waist-coat on a man walking towards to her. Waving his fat fingered hand in front of her face, he rudely broke her meditations. Her jaded eyes incuriously glance at him
+“I got you something from the back,” he says flailing around a sad, little plastic coke bag underneath the bar slab, proudly grinning like a child vying for a gold star. 
+“I didn’t ask you for that shit” 
+“You didn’t have to. I could tell by the way you looked at me just now - you needed it.”
+She sizes him up and down with her white lined eyes and reaches to hold his tiny bicep. The black and white bar lights; The burly, cheating father of two slamming the slab for a beer; The coke baggie slowly slipping out of his hands and into her—all forgotten for an instant as his lifeless cerulean eyes are infected by her darkness. Her lips hover above his cheek as she whispers, 
+“You’ve been a great help.”
+She softly kissed his check in one gentle, controlled, erection-worthy motion and then she leaves—baggie in one hand and Haku in the other. 
 ### A Collection of Writings 
 #### A Sermon:
 My podium is tall, brown, and carries within it a sense of venerability that only the most deceitful can dream of. My imp like legs find it difficult to balance on the stilts they stand on, yet with my limp I arrive squarely at my destination—the head of the assembly. I draw a piece of paper folded crisply in half from my coat pocket. The bodies of the assembly were paused, but I felt their souls dancing across the room in anticipation of my groundbreaking words. I start with a wisecrack about Jesus or something and glance at the clock, my brain hears the ticks which my ears cannot. My heart pants as if it has just run a marathon and a tsunami hits my forehead. My legs push off my tall stilts and my hands thrust the black suit glued to my body into the assembly. I am bare in front of my onlookers. I am bare and I am not proud. A woman in the crowd suddenly resumes her movement. She gazes up, the full sight of her pretty curls obstructed by the straw sun hat she chose to adorn her head with. Her straw hat that so evidently was out of place for her gloved hands sat neatly one atop the other, her thin legs crossed each other creating the perfect “X.” Her feet were outfitted with heels bedazzled with pearls. Her hot pink dress fiercely grasped her tiny waist and thick curves. Her nose was tiny. Her nose was tiny. But her straw hat looked as if it had been plucked off the top of a homeless person’s head. It seemed like an illusion, waiting to dissipate into space. Questions. Questions fluttered through my mind like butterflies who had found an open field. Questions like who was this straw hatted woman and why did she gaze up? Questions like who on earth would wear such a vile straw hat? My patience was wearing thin. Thinner yet. My eyes shut and then my eyelids slowly elevate. I see the woman’s eyes now. Black. Questions like. Questions like how long could I contain myself before I lunged? Questions like how long would it take for me to carve this woman’s face into a trophy? Questions how they swarm. Questions like. Questions like. Questions like. Questions like. 
