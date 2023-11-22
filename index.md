@@ -10,9 +10,9 @@ My father died in the mid-bloom of August—dominated neither by the summer calm
 It’s not about anybody, anywhere, at any time - anybody at all except her. 
 Nobody except her. 
 
-<Page Break>
+*Page-Break*
 
-	Nagano, Japan; 2000. 
+Nagano, Japan; 2000. 
 
 Her midnight eyes gifted a sultry gaze to the local teddy-bear bartender–they twinkled with a wink of “make it strong and you might get lucky.” Now, completely sitting atop the sleek black marble slab as if it were a dirty bathroom sink, she arched backwards and locked eyes with an upside-down bottle of Haku. Her first sincere smile slowly stretched out her sad face. She snaked her sparkly scanties into the bar seat, ample chest pressed without a flinch into the cold, glittery slab. Her arms hold her nocent eyes up as they, finally, squarely see the pristine bottle of Haku.
 She giggles. She sees herself in the Haku. She giggles. 
